@@ -6,3 +6,6 @@
 ![](https://media1.tenor.com/m/bIWKGrYb0FIAAAAC/crazy-dance-funny-dance.gif)
 
 aulas projeto 2024 
+
+
+# eu sou um aluno legal
